@@ -1,11 +1,12 @@
 Cybersecurity Engineer Portfolio
+
+
 <img width="600" height="600" alt="20260331_162529" src="https://github.com/user-attachments/assets/83cc010b-6ab0-41b3-9890-e713d7523538" />
 
 
 BENG. MSC
-London, UK &nbsp;|&nbsp; fidelnneka@gmail.com &nbsp;|&nbsp; [LinkedIn](https://www.linkedin.com/in/fidelinyama/)
 
----
+London, UK &nbsp;|&nbsp; fidelnneka@gmail.com &nbsp;|&nbsp; [LinkedIn](https://www.linkedin.com/in/fidelinyama/)
 
 ## About Me
 
