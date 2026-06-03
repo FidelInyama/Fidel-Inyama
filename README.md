@@ -1,7 +1,7 @@
 # Hi, I'm Fidel Inyama 
 
 **Cybersecurity & IT Support Professional | MSc Cybersecurity Technology (Distinction)**  
-📍 London, UK &nbsp;|&nbsp; 📧 fidelnneka@gmail.com &nbsp;|&nbsp; 🔗 [LinkedIn](https://linkedin.com/in/fideinyama)
+London, UK &nbsp;|&nbsp; fidelnneka@gmail.com &nbsp;|&nbsp; [LinkedIn](https://linkedin.com/in/fideinyama)
 
 ---
 
